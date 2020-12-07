@@ -1,3 +1,2 @@
-
-# Ronnakrit **Rattanasriampaipong**
-## In-training paleoceanographer
+# Ronnakrit Rattanasriampaipong
+In-training paleoceanographer
