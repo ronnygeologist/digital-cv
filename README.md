@@ -1,2 +1,2 @@
 # Ronnakrit Rattanasriampaipong
-In-training paleoceanographer
+## Fulbright Thai Graduate Student at Texas A&M University
